@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TramNguyenICT
 - 👀 I’m interested in digital painting and computer sciences
-- 🌱 I’m currently learning Information and Technolgy
+- 🌱 I’m currently learning Information and Technolgy at Metropolia UAS - Finland
 - 💞️ I’m looking to collaborate
 - 📫 How to reach me: baotramphar@gmail.com
 - 😄 Pronouns: Ms.
