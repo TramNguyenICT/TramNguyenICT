@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate
 - 📫 How to reach me: baotramphar@gmail.com
 - 😄 Pronouns: Ms.
-- ⚡ Fun fact: I'm a Pharmacist
+- ⚡ Fun fact: I'm a Pharmacist and
                 I'm from Ravenclaw house
 
 <!---
